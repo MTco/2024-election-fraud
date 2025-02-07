@@ -1,0 +1,25 @@
+<!doctype html>
+<html class="no-js relative bg-transparent IS_DEV" lang="en-US" dir="ltr" prefix="og:https://ogp.me/ns# fb:https://ogp.me/ns/fb">
+<head>
+	<meta charset="utf-8" />
+	<meta http-equiv="content-type" content="text/html;charset=utf-8" />
+	<!-- Not a WordPressed site -->
+	<meta prefer="safe" />
+	<title>Index of /</title>
+  <script type="text/javascript" charset="utf-8">
+  	;(function(H,e) {
+  		try {
+	  		H.opener = null;
+	  	} catch(e) {}
+	  })(window);
+	</script>
+</head>
+<body id="top" class="relative" direction="ltr" lang="en-US" role="document" itemscope itemtype="https://schema.org/isFamilyFriendly">
+  <h1>Index of /</h1>
+  <ul>
+    {% for url in site.static_files %}
+    <li><a href="{{ site.baseurl | escape }}{{ url.path | escape }}">{{ url.path | escape }}</a> </li>
+    {% endfor %}
+  </ul>
+</body>
+</html>
