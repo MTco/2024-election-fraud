@@ -14,4 +14,4 @@ Easily shareable via: [https://tylerpresident.com](https://tylerpresident.com/?r
 
 Github directly via [https://FakeGov.com](https://fakegov.com/?ref=github#)
 
-Short URLs, (https://dlike.co/google_discovery), (https://dlike.co/proton_discovery), and (https://dlike.co/github_discovery)
+Short URLs, [https://dlike.co/google_discovery], [https://dlike.co/proton_discovery], and [https://dlike.co/github_discovery]
