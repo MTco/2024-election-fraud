@@ -13,3 +13,5 @@ Discovery ISO file: [Google Drive](https://drive.google.com/file/d/1IPd5a29sWWBR
 Easily shareable via: [https://tylerpresident.com](https://tylerpresident.com/?ref=github#)
 
 Github directly via [https://FakeGov.com](https://fakegov.com/?ref=github#)
+
+Short URLs, (https://dlike.co/google_discovery), (https://dlike.co/proton_discovery), and (https://dlike.co/github_discovery)
