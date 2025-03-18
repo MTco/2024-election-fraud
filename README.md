@@ -1,5 +1,11 @@
 # 2024-election-fraud
 
+---
+
+Latest: 03-17-2025: Motion seeking to disqualify Judge Dennis M. Cota, requesting accommodations and other misc things
+
+---
+
 [US District Court, Eastern District for California](https://dockets.justia.com/docket/california/caedce/2:2025cv00404/459778)
 
 [Case# 2:2025cv00404](https://dockets.justia.com/docket/california/caedce/2:2025cv00404/459778)
