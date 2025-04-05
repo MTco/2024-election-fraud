@@ -3,7 +3,7 @@
 ---
 
 > ### tl;dr
-> For approximately a year, "elected officials" in all 50 states and in the federal governtment have conspired and colluded to rig the 2024 US Presidential election against the entire United States.
+> For approximately a year, "elected officials" in all 50 states and in the federal government have conspired and colluded to rig the 2024 US Presidential election against the entire United States.
 >
 > Violating a number of crimes, including, by interfering in the United States and its citizens having a fair & free election, two of your federally protected activities, [18 U.S.C. § 245(b)(1)(B)](https://www.law.cornell.edu/uscode/text/18/245#b_1_B "18 U.S.C. § 245(b)(1)(B)"), [(E)](https://www.law.cornell.edu/uscode/text/18/245#b_1_E "18 U.S.C. § 245(b)(1)(E)") have been interfered with. Worse, no one was afforded due process as required by law which then violated the equal protection rights.  Making the 2024 US Presidential election and everything arising from it, "[Fruit of the poisonous tree](https://en.wikipedia.org/wiki/Fruit_of_the_poisonous_tree "Fruit of the poisonous tree")".
 >
