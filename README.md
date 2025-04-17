@@ -14,6 +14,7 @@
 <br>
 
 ### Latest: 
+  * 04-16-2025: Motion establishing personal jurisdiction in California
   * 03-27-2025: Motion objecting to the use of public purse resources.  Motion establishing a pattern.  Motion objecting to the removal of any Defendants
   * 03-19-2025: Directing US District Judges around the entire country to initiate criminal prosecution in accordance with 42 U.S.C. § 1987 (20250319_US-Dist-Courts.pdf)
   * 03-17-2025: Motion seeking to disqualify Judge Dennis M. Cota, requesting accommodations and other misc things
