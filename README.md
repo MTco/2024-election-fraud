@@ -48,6 +48,8 @@ RHODE ISLAND EEOC;<br><br>
 DOES 1-50 (Secretaries of State for all 50 states)<br><br>
 **_Defendants_**<br>
 
+---
+
 Discovery: [Google drive](https://drive.google.com/drive/folders/1kjYtHdHLCRLP6bqbn5Vm8xbrzM5vCSLp?usp=drive_link "Google drive"), [Proton drive](https://drive.proton.me/urls/2CPAN7N7CW#7lYm2jlhZhZN "Proton drive"), [Github](https://github.com/MTco/2024-election-fraud/)
 
 Discovery ISO file: [Google Drive](https://drive.google.com/file/d/1IPd5a29sWWBRWxadWCeq_ERlBpbFb6sP/view?usp=sharing), [Proton Drive](https://drive.proton.me/urls/WQ1VAHV8M4#zFd60mWvnDoq) -- github has a 25mb file limit
