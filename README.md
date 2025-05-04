@@ -27,7 +27,26 @@
 
 [Case# 2:2025cv00404](https://dockets.justia.com/docket/california/caedce/2:2025cv00404/459778)
 
-Tyler v. 118th US Congress, et al.,
+Mathew Tyler<br>
+**_Plaintiff_**<br>
+<br>
+vs.<br> 
+<br>
+118TH US CONGRESS;<br><br>
+US DEPARTMENT OF JUSTICE, et al.;<br><br>
+US ATTORNEY'S OFFICE NORTHERN CALIFORNIA, ET AL.;<br><br>
+BENJAMIN C. MIZER, ET SEQ., IN OFFICIAL CAPACITY AS PRINCIPAL DEPUTY ASSOCIATE ATTORNEY GENERAL, US DEPARTMENT OF JUSTICE;<br><br>
+CALIFORNIA ATTORNEY GENERAL;<br><br>
+SHIRLEY WEBER, in her official capacity as California Secretary OF STATE;<br><br>
+FIONA MA, in her official capacity as California State TREASURER;<br><br>
+JAMES GALLAGHER, IN OFFICIAL CAPACITY AS CA. ASSEMBLYMAN;<br><br>
+WASHINGTON US ATTORNEY / DOJ;<br><br>
+UTAH LT. GOVERNOR;<br><br>
+UTAH ATTORNEY GENERAL;<br><br>
+NEW HAMPSHIRE DOJ;<br><br>
+RHODE ISLAND EEOC;<br><br>
+DOES 1-50 (Secretaries of State for all 50 states)<br><br>
+**_Defendants_**<br>
 
 Discovery: [Google drive](https://drive.google.com/drive/folders/1kjYtHdHLCRLP6bqbn5Vm8xbrzM5vCSLp?usp=drive_link "Google drive"), [Proton drive](https://drive.proton.me/urls/2CPAN7N7CW#7lYm2jlhZhZN "Proton drive"), [Github](https://github.com/MTco/2024-election-fraud/)
 
