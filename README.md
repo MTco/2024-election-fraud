@@ -14,18 +14,24 @@
 <br>
 
 ### Latest: 
-  * 04-28-2025: Petition for writ of prohibition and temporary restraining order (Chief Judge, Ninth Circuit of Appeals [USPS 9505506703165116770800])
-  * 04-18-2025: Petition for writ of prohibition and temporary restraining order (Chief Judge, US District Court)
-  * 04-16-2025: Motion establishing personal jurisdiction in California
-  * 03-27-2025: Motion objecting to the use of public purse resources.  Motion establishing a pattern.  Motion objecting to the removal of any Defendants
-  * 03-19-2025: Directing US District Judges around the entire country to initiate criminal prosecution in accordance with 42 U.S.C. § 1987 (20250319_US-Dist-Courts.pdf)
-  * 03-17-2025: Motion seeking to disqualify Judge Dennis M. Cota, requesting accommodations and other misc things
+  * 05-12-2025: [Amended complaint](https://drive.google.com/file/d/1i5xpnNzmGLhmRsu4h6wJzAibhcuGvygb/view?usp=drive_link "05-12-2025: Amended complaint"), naming US Magistrate Judge Dennis M. Cota and Ninth Circuit of Appeals as defendants / co-conspirators [USPS 9505515485565129597538]
+  * 04-28-2025: [Petition for writ of prohibition and temporary restraining order](https://drive.google.com/file/d/1YNAmIaPm3W56DHG7hVUsmRX_PDjRUlMM/view?usp=drive_link "Petition for writ of prohibition and temporary restraining order") (Chief Judge, Ninth Circuit of Appeals [USPS 9505506703165116770800])
+  * 04-18-2025: [Petition for writ of prohibition and temporary restraining order](https://drive.google.com/file/d/1YNAmIaPm3W56DHG7hVUsmRX_PDjRUlMM/view?usp=drive_link "Petition for writ of prohibition and temporary restraining order") (Chief Judge, US District Court, EDCA)
+  * 04-16-2025: [Motion establishing personal jurisdiction in California](https://drive.google.com/file/d/1XZ0RIv-s16MxnZHl9is0ZJSTotsi6zVb/view?usp=drive_link "Motion establishing personal jurisdiction in California")
+  * 03-27-2025:
+    + [Motion objecting to the use of public purse resources](https://drive.google.com/file/d/1S29GEJoBQDKPL06RZgV7DGlEEr2bdVDg/view?usp=drive_link "Motion objecting to the use of public purse resources")
+    + [Motion establishing a pattern](https://drive.google.com/file/d/1CCRUOQVQtI6_p5_0E-sGXisOa3PrpbGq/view?usp=drive_link "Motion establishing a pattern")
+    + [Motion objecting to the removal of any Defendants](https://drive.google.com/file/d/1nZiInwom_zDk_R4vrYUsg2PvQlEC_198/view?usp=drive_link "Motion objecting to the removal of any Defendants")
+  * 03-19-2025: [Directing US District Judges around the entire country to initiate criminal prosecution in accordance with 42 U.S.C. § 1987](https://drive.google.com/file/d/19LVxmDpQaJ0668009v8GgMyIBqpKs1w9/view?usp=drive_link "Directing US District Judges around the entire country to initiate criminal prosecution in accordance with 42 U.S.C. § 1987")
+  * 03-17-2025:
+    + [Motion seeking to disqualify US Magistrate Judge Dennis M. Cota](https://drive.google.com/file/d/1Hcts5HxnQ3VSCSRIjfugZPB_SU4QVPOI/view?usp=drive_link "Motion seeking to disqualify US Magistrate Judge Dennis M. Cota")
+    + [Motion requesting ADA accommodations and other misc things](https://drive.google.com/file/d/17skZ9PZ1yvdCDcZud4ZCRttAxf5jFS9g/view?usp=drive_link "Motion requesting ADA accommodations and other misc things")
 
 ---
 
 [US District Court, Eastern District for California](https://dockets.justia.com/docket/california/caedce/2:2025cv00404/459778)
 
-[Case# 2:2025cv00404](https://dockets.justia.com/docket/california/caedce/2:2025cv00404/459778)
+[Case# 2:2025CV00404](https://dockets.justia.com/docket/california/caedce/2:2025cv00404/459778 "US Dist. Court, EDCA, Case# 2:2025CV00404")
 
 Mathew Tyler<br>
 **_Plaintiff_**<br>
@@ -50,6 +56,8 @@ DOES 1-50 (Secretaries of State for all 50 states)<br><br>
 
 ---
 
+Quick links: [Amended complaint](https://drive.google.com/file/d/1i5xpnNzmGLhmRsu4h6wJzAibhcuGvygb/view?usp=drive_link "05-12-2025: Amended complaint") | [Summary Judgment](https://drive.google.com/file/d/1Qk87sL6RXB1X0P8HvGhRYocstoSlJS7h/view?usp=drive_link "02-19-2025: Summary Judgment") | [Initial complaint](https://drive.google.com/file/d/1bYbgNgQb4ftSawCWvMQNSPUXNzw_GikW/view?usp=drive_link "01-30-2025: Initial complaint")
+<br><br>
 Discovery: [Google drive](https://drive.google.com/drive/folders/1kjYtHdHLCRLP6bqbn5Vm8xbrzM5vCSLp?usp=drive_link "Google drive"), [Proton drive](https://drive.proton.me/urls/2CPAN7N7CW#7lYm2jlhZhZN "Proton drive"), [Github](https://github.com/MTco/2024-election-fraud/)
 
 Discovery ISO file: [Google Drive](https://drive.google.com/file/d/1IPd5a29sWWBRWxadWCeq_ERlBpbFb6sP/view?usp=sharing), [Proton Drive](https://drive.proton.me/urls/WQ1VAHV8M4#zFd60mWvnDoq) -- github has a 25mb file limit
@@ -58,4 +66,4 @@ Easily shareable via: [https://tylerpresident.com](https://tylerpresident.com/?r
 
 Github directly via [https://FakeGov.com](https://fakegov.com/?ref=github#)
 
-Short URLs, [https://dlike.co/google_discovery], [https://dlike.co/proton_discovery], and [https://dlike.co/github_discovery]
+Short URLs, [https://google.fakegov.com](https://google.fakegov.com/?ref=google&do=google "https://google.fakegov.com"), [https://proton.fakegov.com](https://proton.fakegov.com/?ref=proton&do=proton "https://proton.fakegov.com"), and [https://github.fakegov.com](https://github.fakegov.com/?ref=github&do=github "https://github.fakegov.com")
