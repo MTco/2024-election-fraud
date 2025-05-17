@@ -14,6 +14,7 @@
 <br>
 
 ### Latest: 
+  * 05-17-2025: Re-submitted petition for writ of prohibition, conforming to Circuit Rule 21-2 [Ninth Circuit of Appeals, USPS 9505515485565135598826]
   * 05-12-2025: [Amended complaint](https://drive.google.com/file/d/1i5xpnNzmGLhmRsu4h6wJzAibhcuGvygb/view?usp=drive_link "05-12-2025: Amended complaint"), naming US Magistrate Judge Dennis M. Cota and Ninth Circuit of Appeals as defendants / co-conspirators [USPS 9505515485565129597538]
   * 04-28-2025: [Petition for writ of prohibition and temporary restraining order](https://drive.google.com/file/d/1YNAmIaPm3W56DHG7hVUsmRX_PDjRUlMM/view?usp=drive_link "Petition for writ of prohibition and temporary restraining order") (Chief Judge, Ninth Circuit of Appeals [USPS 9505506703165116770800])
   * 04-18-2025: [Petition for writ of prohibition and temporary restraining order](https://drive.google.com/file/d/1YNAmIaPm3W56DHG7hVUsmRX_PDjRUlMM/view?usp=drive_link "Petition for writ of prohibition and temporary restraining order") (Chief Judge, US District Court, EDCA)
