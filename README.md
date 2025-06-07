@@ -4,6 +4,10 @@
 ### _"At first sight, violations of prohibited acts [that are] wrong in itself [and] act beyond the powers"_ _[[Translation](https://g.co/gemini/share/398cd90d09b2 "Translation of Prima facie violationes actuum prohibitorum, malum in se ultra vire acts")]_
 ---
 
+The origins being fraud, everything arising from fraud is "[Fruit of the poisonous tree](https://en.wikipedia.org/wiki/Fruit_of_the_poisonous_tree "Fruit of the poisonous tree")," including the current Presidential administration and anything else arising from this fraudulently interfered with election.
+
+---
+
 > ### tl;dr
 > For approximately a year, "elected officials" in all 50 states and in the federal government have conspired and colluded to rig the 2024 US Presidential election against the entire United States.
 >
