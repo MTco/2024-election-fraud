@@ -20,6 +20,9 @@ The origins being fraud, everything arising from fraud is "[Fruit of the poisono
 <br>
 
 ### Latest: 
+  * 06-17-2025:
+    + [Motion to dismiss and strike](https://drive.google.com/file/d/1qhowWEsNm3X7FsVOH1OSyKqjBL23W77c/view?usp=drive_link "Motion to dismiss and strike")
+    + [Response to US Attorneys, East California](https://drive.google.com/file/d/1tvbRRrRNAFPYCUaSrnUawPbgjj_qUbhn/view?usp=drive_link "Response to US Attorneys, East California")
   * 06-04-2025:
     + [Objection to ruling](https://drive.google.com/file/d/1mqNk7oy5QR9xBjE8n90BKMGtJOtQ3Cak/view?usp=drive_link "Objection to ruling")
     + [Reply brief to California AG motion to dismiss](https://drive.google.com/file/d/19H3oWfXrCKVgJs8JUw_F0MroDOMj7tLx/view?usp=drive_link "Reply brief to California AG motion to dismiss")
