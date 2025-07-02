@@ -20,6 +20,7 @@ The origins being fraud, everything arising from fraud is "[Fruit of the poisono
 <br>
 
 ### Latest: 
+  * 07-02-2025: [Emergency motion for ultra vires acts](https://drive.google.com/file/d/1I5cMDsmT5t1Y8CXFV_90FUt9J-FVSc2C/view?usp=drive_link "Emergency motion for ultra vires acts")
   * 06-17-2025:
     + [Motion to dismiss and strike](https://drive.google.com/file/d/1qhowWEsNm3X7FsVOH1OSyKqjBL23W77c/view?usp=drive_link "Motion to dismiss and strike")
     + [Response to US Attorneys, East California](https://drive.google.com/file/d/1tvbRRrRNAFPYCUaSrnUawPbgjj_qUbhn/view?usp=drive_link "Response to US Attorneys, East California")
