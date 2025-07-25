@@ -22,7 +22,10 @@ The origins being fraud, everything arising from fraud is "[Fruit of the poisono
 <br>
 
 ### Latest: 
-  * 07-02-2025: [Emergency motion for ultra vires acts](https://drive.google.com/file/d/1I5cMDsmT5t1Y8CXFV_90FUt9J-FVSc2C/view?usp=drive_link "Emergency motion for ultra vires acts")
+  * 07-24-2025:
+    + [US Dist. Court Emergency motion](https://drive.google.com/file/d/1zShKvHrZY4zYKj9QagP8AEwt0HiDSIFO/view?usp=drive_link "US Dist. Court Emergency motion")
+    + [Authorization for Restoration of Constitutional Governance](https://drive.google.com/file/d/13oWxf79mgSKQdkkC66BET3LrW96ckX2j/view?usp=drive_link "Authorization for Restoration of Constitutional Governance")
+  * 07-02-2025: [Ninth Circuit: Emergency motion for ultra vires acts](https://drive.google.com/file/d/1I5cMDsmT5t1Y8CXFV_90FUt9J-FVSc2C/view?usp=drive_link "Emergency motion for ultra vires acts")
   * 06-17-2025:
     + [Motion to dismiss and strike](https://drive.google.com/file/d/1qhowWEsNm3X7FsVOH1OSyKqjBL23W77c/view?usp=drive_link "Motion to dismiss and strike")
     + [Response to US Attorneys, East California](https://drive.google.com/file/d/1tvbRRrRNAFPYCUaSrnUawPbgjj_qUbhn/view?usp=drive_link "Response to US Attorneys, East California")
