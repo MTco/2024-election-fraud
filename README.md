@@ -1,4 +1,4 @@
-# [:house_with_garden:](https://fakegov.com/?ref=github#ref=github "2024 US Presidential election fraud") 2024 US Presidential election fraud
+# [:house_with_garden:](https://fakegov.com/?ref=github#ref=github "2024 US Presidential election fraud") Remember, remember the treason of November 5th, 2024
 
 Provoking thought, if there was a battle, conflict, war etc ... whose side would you want me on? Yours or the opposition? 🤔
 
@@ -18,6 +18,10 @@ The origins being fraud, everything arising from fraud is "[Fruit of the poisono
 > The evidence is linked in these files on this page; and is also mirrored on [Google drive](https://drive.google.com/drive/folders/1kjYtHdHLCRLP6bqbn5Vm8xbrzM5vCSLp?usp=drive_link "Google drive") and [Proton drive](https://drive.proton.me/urls/2CPAN7N7CW#7lYm2jlhZhZN "Proton drive").
 >
 > Imposed eligibility criteria that conflicts with [Article II, Section 1, Clause 5 of the US Constitution](https://en.wikipedia.org/wiki/Article_Two_of_the_United_States_Constitution#Clause_5:_Qualifications_for_office "Article II, Section 1, Clause 5 of the US Constitution"), which is preempted / precluded in accordance with [Article VI, Clause 2 of the US Constitution](https://en.wikipedia.org/wiki/Supremacy_Clause "Article VI, Clause 2 of the US Constitution") (the “Supremacy Clause”). Eligibility criteria that is designed to screen out individuals with disabilities, [42 U.S.C. § 12182(b)(2)(A)(i)](https://www.law.cornell.edu/uscode/text/42/12182#b_2_A_i "42 U.S.C. § 12182(b)(2)(A)(i)"). Also making the United States and these States unequal/unfair employers.  Promulgated by Trump v. Anderson, No. 23-719, 601 U.S. (2024), “It would be incongruous to read this particular Amendment as granting the States the power — silently no less — to disqualify a candidate for federal office,” establishes: (1) States lack the power to disqualify a candidate for federal office and, (2) that not including a candidate on the ballot, even for a primary would be disqualifying the candidate. Constituting violations of: [18 U.S.C. § 595](https://www.law.cornell.edu/uscode/text/18/595 "18 U.S.C. § 595"), [18 U.S.C. §§ 241-242](https://www.law.cornell.edu/uscode/text/18/241 "18 U.S.C. §§ 241"), and of [Article 1, section 1 to the US Constitution](https://en.wikipedia.org/wiki/Article_One_of_the_United_States_Constitution#Section_1:_Legislative_power_vested_in_Congress "Article 1, section 1 to the US Constitution"); “All legislative Powers herein granted shall be vested in a Congress of the United States, which shall consist of a Senate and House of Representatives.”
+
+<br>
+
+Elaboration how far behind and how futile efforts are? 🤔 [You have already lost, you just don't know it.](https://en.wikipedia.org/wiki/Dunning–Kruger_effect) Your enemies will likely know it long before you do; i.e., "asinus asinum fricat" 
 
 <br>
 
