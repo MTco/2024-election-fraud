@@ -21,7 +21,7 @@ The origins being fraud, everything arising from fraud is "[Fruit of the poisono
 
 <br>
 
-Elaboration how far behind and how futile efforts are? 🤔 [You have already lost, you just don't know it.](https://en.wikipedia.org/wiki/Dunning–Kruger_effect) Your enemies will likely know it long before you do; i.e., "asinus asinum fricat" 
+Elaboration how far behind and how futile efforts are? 🤔 [You have already lost, you just don't know it.](https://en.wikipedia.org/wiki/Dunning–Kruger_effect); i.e., "asinus asinum fricat"  Your enemies will likely know it long before you do; i.e., [Folie à deux](https://en.wikipedia.org/wiki/Folie_%C3%A0_deux "Folie à deux").
 
 <br>
 
