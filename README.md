@@ -21,7 +21,17 @@ The origins being fraud, everything arising from fraud is "[Fruit of the poisono
 
 <br>
 
-Elaboration how far behind and how futile efforts are? 🤔 [You have already lost, you just don't know it.](https://en.wikipedia.org/wiki/Dunning–Kruger_effect); i.e., "asinus asinum fricat"  Your enemies will likely know it long before you do; i.e., [Folie à deux](https://en.wikipedia.org/wiki/Folie_%C3%A0_deux "Folie à deux").
+What is futility?
++ Tolling the statute of limitation, each day being a new "[actus reus](https://en.wikipedia.org/wiki/Actus_reus "actus reus")" "[mens rea](https://en.wikipedia.org/wiki/Mens_rea "mens rea")".
++ Initially, a Biblical flood, leveraging IFP, file new lawsuits in every applicable court, in every single jurisdiction, nationally.
++
++ Remember remember that one 2024 presidential commericial that the news media did not want to air? In accordance with Article VI, Clause 2 of the US Constitution, pursuant to Article II, Section 1, Clause 5 of the US Constitution; as a presidential candidate from 2016-2084, in the next applicable federal election run ads that that expose the fraud, corruption, and attempted coverup of the 2024 election. Any attempts to change applicable laws or infringe on my rights will be litigated as void ab initio, "ultra vires acts" of an unconstituional judiciary and legislation. Everything applicable today will be applicable then, just worse as a more evident coverup emerges.
++
++ Long term, whenever any of your enemies litigates anything.
++
++ Sporadic enforcement of my rights as a crime victim, including a crime victim of the judiciary, specifically the right to be heard upon request, which is not predicated on approval.
+
+Wouldn't any reasonable, informed American—aware that judges are bound by both the Constitution's [Supremacy Clause](https://en.wikipedia.org/wiki/Supremacy_Clause "Supremacy Clause") (Article VI, Clause 2) and their oaths of office (Article VI, Clause 3; 28 U.S.C. § 453)—have serious doubts about the integrity or bias of a judge who deliberately ignores those mandates? Such acts are not mere errors—they're [ultra vires acts](https://en.wikipedia.org/wiki/Ultra_vires "ultra vires acts"): legally null, as the Supreme Court explained in Norton v. Shelby County, 118 U.S. 425 (1886). Ignoring this duty doesn't just undermine law—it invites injustice. As seen in the impeachment of Judge G. Thomas Porteous Jr. (H.Res. 1031), this level of misconduct shows a gross disregard for justice and ends any claim to "good behavior" or lifetime tenure.
 
 <br>
 
