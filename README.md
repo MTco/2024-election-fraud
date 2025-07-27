@@ -23,9 +23,9 @@ The origins being fraud, everything arising from fraud is "[Fruit of the poisono
 
 What is futility?
 + Tolling the statute of limitation, each day being a new "[actus reus](https://en.wikipedia.org/wiki/Actus_reus "actus reus")" "[mens rea](https://en.wikipedia.org/wiki/Mens_rea "mens rea")".
-+ Initially, a Biblical flood, leveraging IFP, file new lawsuits in every applicable court, in every single jurisdiction, nationally.
-+
-+ Remember remember that one 2024 presidential commericial that the news media did not want to air? In accordance with Article VI, Clause 2 of the US Constitution, pursuant to Article II, Section 1, Clause 5 of the US Constitution; as a presidential candidate from 2016-2084, in the next applicable federal election run ads that that expose the fraud, corruption, and attempted coverup of the 2024 election. Any attempts to change applicable laws or infringe on my rights will be litigated as void ab initio, "ultra vires acts" of an unconstituional judiciary and legislation. Everything applicable today will be applicable then, just worse as a more evident coverup emerges.
++ Initially, a Biblical flood, leveraging IFP, file new lawsuits in every applicable court, in every single jurisdiction, nationally.<br>
++ Remember remember that one 2024 presidential commericial that the news media did not want to air?
++ In accordance with Article VI, Clause 2 of the US Constitution, pursuant to Article II, Section 1, Clause 5 of the US Constitution; as a presidential candidate from 2016-2084, in the next applicable federal election run ads that that expose the fraud, corruption, and attempted coverup of the 2024 election. Any attempts to change applicable laws or infringe on my rights will be litigated as void ab initio, "ultra vires acts" of an unconstituional judiciary and legislation. Everything applicable today will be applicable then, just worse as a more evident coverup emerges.<br>
 +
 + Long term, whenever any of your enemies litigates anything.
 +
