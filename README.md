@@ -37,7 +37,7 @@ Inevitably forcing all of these unconstitutional, "ultra vires acts" to be undon
   * 07-24-2025:
     + [US Dist. Court Emergency motion](https://drive.google.com/file/d/1zShKvHrZY4zYKj9QagP8AEwt0HiDSIFO/view?usp=drive_link "US Dist. Court Emergency motion") [USPS: 9505513376015206134921]
     + [US Military Authorization for Restoration of Constitutional Governance](https://drive.google.com/file/d/13oWxf79mgSKQdkkC66BET3LrW96ckX2j/view?usp=drive_link "US Military Authorization for Restoration of Constitutional Governance") [Emailed 07/24/2025. USPS Delivery ETA, 07/30/2025]
-  * 07-02-2025: [Ninth Circuit: Emergency motion for ultra vires acts](https://drive.google.com/file/d/1I5cMDsmT5t1Y8CXFV_90FUt9J-FVSc2C/view?usp=drive_link "Emergency motion for ultra vires acts")
+  * 07-02-2025: [Ninth Circuit: Emergency motion for ultra vires acts](https://drive.google.com/file/d/1I5cMDsmT5t1Y8CXFV_90FUt9J-FVSc2C/view?usp=drive_link "Emergency motion for ultra vires acts") [Emailed & refusual without authority cited upon request, 07/02/2025. Hand delivered, 07/03/2025. Denied, 07/22/2025]
   * 06-17-2025:
     + [Motion to dismiss and strike](https://drive.google.com/file/d/1qhowWEsNm3X7FsVOH1OSyKqjBL23W77c/view?usp=drive_link "Motion to dismiss and strike")
     + [Response to US Attorneys, East California](https://drive.google.com/file/d/1tvbRRrRNAFPYCUaSrnUawPbgjj_qUbhn/view?usp=drive_link "Response to US Attorneys, East California")
