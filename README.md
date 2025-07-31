@@ -1,4 +1,4 @@
-## (https://fakegov.com/?ref=github#ref=github "2024 US Presidential election fraud") Remember remember the treason of November 5th, 2024
+## Remember remember the treason of November 5th, 2024
 
 _Provoking thought, if there was a battle, conflict, war etc ... whose side would you want me on? Yours or the opposition?_ 🤔
 
