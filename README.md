@@ -21,7 +21,7 @@ The origins being fraud, everything arising from fraud is "[Fruit of the poisono
 
 <br>
 
-## E pluribus unum. The power of one. 
+## E pluribus unum. The power of 1. 
 #### _Genisys, Matthew 24:21, Matthew 3:10 Matthew 5:17, Matthew 10:34 for Matthew 7:12 rather than Zephaniah 1:14-16_
 + Apply the [Continuing-violations doctrine](https://en.wikipedia.org/wiki/Statute_of_limitations#Continuing-violations_doctrine "Continuing-violations doctrine").  Tolling the statute of limitation, each day being a new "[actus reus](https://en.wikipedia.org/wiki/Actus_reus "actus reus")" "[mens rea](https://en.wikipedia.org/wiki/Mens_rea "mens rea")".<br><br>If necessary, section 504 / ADA request for reasonable accommodations; lawfully refuitable only as an "undue hardship" as codified by 42 U.S.C. § 12111(10), pursuant to 42 U.S.C. § 12112(b)(5)(A). Or fundamentally alter the nature of the service, program, or activity; pursuant to 28 C.F.R. § 35.130(b)(7)(i). Success does not release duty to operate inclusively to my needs or obligation to provide reasonable accommodations; it's the public purse, which these people are slaves to, it isn't their personal monies. I have more right to the monies than they do.
 + Initially, a Biblical "flood," leveraging IFP, file new lawsuits in every applicable court, in every single jurisdiction, nationally. Crimes originated in every state, allowing anyone, any grand jury or whatever to investigate / prosecute / or whatever they do. Only one judge in human history is needed to uphold the law...<br><br>
