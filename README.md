@@ -37,7 +37,7 @@ Inevitably forcing all of these unconstitutional, "ultra vires acts" to be undon
 ### Latest: 
   * 07-31-2025:
     + Another day without mandatory Constitutional adjudication for an Ex parte TRO, as the "Court" still seeks the means to their end, neither a denial or approval.
-    + Another day looking into _more_ of the judiciary, case precedent, and preparing different lawsuits to rectify the judiciary's treasonous acts from its genesis.
+    + Another day looking into _more_ of the judiciary, case precedent, and preparing different lawsuits to rectify the judiciary's treasonous acts from its genesis. "Mathew 'Matt Tyler' Tyler' ad portas" or simply, "Matt Tyler!"
   * 07-30-2025: A new, different lawsuit that is related filed in Superior Court, including a motion for a TRO to be adjudicated on 07-30-2025 @ 16:00.  I was told on 07-30-2025 @ approximately 15:50 that my TRO will be denied, the "Court" just doesn't know how it's going to justify the denial.  **Denial _prior_ to justification** seems like a prejudice / bias or something to me, the "Court" knew how it was going to rule before it knew why it was going to rule that way; ends justifying the means much?  More evidence of the collapse of the judiciary, that the judiciary is per se "open," just functionally closed to mandatory constitutional enforcement for a different, third, judiciary; first being US District "Court," then Ninth Circuit of Appeals, and now a State level "Superior 'Court'".   
   * 07-24-2025:
     + [US Dist. Court Emergency motion](https://drive.google.com/file/d/1zShKvHrZY4zYKj9QagP8AEwt0HiDSIFO/view?usp=drive_link "US Dist. Court Emergency motion") [USPS: 9505513376015206134921]
