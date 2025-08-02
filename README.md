@@ -35,7 +35,7 @@ Inevitably forcing all of these unconstitutional, "ultra vires acts" to be undon
 <br>
 
 ### Latest: 
-  * 08-01-2025: **Day 183** of the "judiciary" being per se open whilst functionally closed to constitutional enforcement. The one condition of their employment 🤦🏿‍♂️. 
+  * 08-01-2025: **Day 183** of the "judiciary" being per se open whilst functionally closed to constitutional enforcement. The one condition of their employment 🤦🏿‍♂️. Malachi 2:2 😔
   * 07-31-2025:
     + Another day without mandatory Constitutional adjudication for an Ex parte TRO, as the "Court" still seeks the means to their end, neither a denial or approval.
     + Another day looking into _more_ of the judiciary, case precedent, and preparing different lawsuits to rectify the judiciary's treasonous acts from its genesis. "Mathew 'Matt Tyler' Tyler ad portas!" or simply, "Matt Tyler!"
