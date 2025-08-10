@@ -10,7 +10,7 @@ The origins being fraud, everything arising from fraud is "[Fruit of the poisono
 
 ---
 
-My initial attempt to simply and non legalese explain the gist of the initial crimes with the election. Not comprehensive. [https://pastebin.com/xDJE9MjB](https://pastebin.com/xDJE9MjB)
+Gemini's initial attempt at simplifying, let me know if it's understandable to you?; https://pastebin.com/ddCYY8V4 --- My initial attempt to simply and non legalese explain the gist of the initial crimes with the election. Not comprehensive. [https://pastebin.com/xDJE9MjB](https://pastebin.com/xDJE9MjB).
 
 > ### tl;dr
 > For approximately a year, "elected officials" in all 50 states and in the federal government have conspired and colluded to rig the 2024 US Presidential election against the entire United States.
