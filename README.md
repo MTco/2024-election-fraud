@@ -37,6 +37,8 @@ Inevitably forcing all of these unconstitutional, "ultra vires acts" to be undon
 <br>
 
 ### Latest: 
+  * 08-13-2025: Submitted via web portals and additional email addresses, 07/24/2025's "Authorization for Restoration of Constitutional Governance" and Emergency motion
+  * 08-11-2025: Hand delivered 07/24/2025's "Authorization for Restoration of Constitutional Governance" and Emergency motion
   * 08-01-2025: **Day 183** of the "judiciary" being per se open whilst functionally closed to constitutional enforcement. The one condition of their employment 🤦🏿‍♂️. Malachi 2:2, Malachi 4:1, Proverbs 1:26-27 for Jeremiah 25:33 😔
   * 07-31-2025:
     + Another day without mandatory Constitutional adjudication for an Ex parte TRO, as the "Court" still seeks the means to their end, neither a denial or approval.
