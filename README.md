@@ -36,6 +36,11 @@ Inevitably forcing all of these unconstitutional, "ultra vires acts" to be undon
 
 <br>
 
+### A peak into the lawful future
+Re: a fallacy construct of judiciary treasonous acts, "preemption framework," *(Gibbons v. Ogden [1824] and Rice v. Santa Fe Elevator Corp. [1947])*;  express preemption is explicitly provided *and* ***mandated*** by [Article VI, clause 2 of the US Constitution](https://en.wikipedia.org/wiki/Supremacy_Clause "Supremacy Clause") which explicitly provides and requires preemption of state laws by federal law and explicitly preempts state ***and*** federal law by the Constitution itself. Full stop.  Absent a legitimate Constitutional amendment, the Constitution is the supreme law of the land which explicitly states and requires preemptions. Even if the legislative branch and the executive branch passed legislation that elevated anything above the Constitution, the judiciary, required by their own oath(s) to uphold and defend the Constitution, and their own non-discretionary fidelity to the Constitution would have to rule that legislation as unconstitutional, void *ab initio* as an *ultra vires act*. Or the legislation *and* the ruling itself would be unconstitutional, void *ab initio* as an *ultra vires act*.
+
+<br>
+
 ### Latest: 
   * 08-13-2025: Submitted via web portals and additional email addresses, 07/24/2025's "Authorization for Restoration of Constitutional Governance" and Emergency motion
   * 08-11-2025: Hand delivered 07/24/2025's "Authorization for Restoration of Constitutional Governance" and Emergency motion
