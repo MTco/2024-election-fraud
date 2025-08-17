@@ -1,4 +1,4 @@
-*More detailed version: [ENHANCED+ MEMORANDUM OF POINTS AND AUTHORITIES](https://github.com/MTco/2024-election-fraud/blob/main/Superior-Court/enhanced%2B-memorandum.md)*
+*Detailed version: [ENHANCED+ MEMORANDUM OF POINTS AND AUTHORITIES](https://github.com/MTco/2024-election-fraud/blob/main/Superior-Court/enhanced%2B-memorandum.md)*
 
 **ENHANCED MEMORANDUM OF POINTS AND AUTHORITIES**  
 **IN SUPPORT OF MOTION TO COMPEL IMMEDIATE JUDICIAL RULING**  
