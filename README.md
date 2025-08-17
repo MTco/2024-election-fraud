@@ -2,12 +2,6 @@
 
 _Provoking thought, if there was a battle, conflict, war etc ... whose side would you want me on? Yours or the opposition?_ 🤔
 
-### [Prima facie](https://en.wikipedia.org/wiki/Prima_facie "Prima facie") "[violationes actuum prohibitorum,](https://g.co/gemini/share/11c86bb15ffd "violationes actuum prohibitorum")" "[malum in se](https://en.wikipedia.org/wiki/Malum_in_se "malum in se")" "[ultra vire](https://en.wikipedia.org/wiki/Ultra_vires "ultra vire acts")" acts
-### _"At first sight, violations of prohibited acts [that are] wrong in itself [and] act beyond the powers"_ _[[Translation](https://g.co/gemini/share/398cd90d09b2 "Translation of Prima facie violationes actuum prohibitorum, malum in se ultra vire acts")]_
----
-
-The origins being fraud, everything arising from fraud is "[Fruit of the poisonous tree](https://en.wikipedia.org/wiki/Fruit_of_the_poisonous_tree "Fruit of the poisonous tree")," including the current Presidential administration and anything else arising from this fraudulently interfered with election.
-
 ---
 
 Gemini's initial attempt at simplifying, let me know if it's understandable to you?; https://pastebin.com/ddCYY8V4 --- My initial attempt to simply and non legalese explain the gist of the initial crimes with the election. Not comprehensive. [https://pastebin.com/xDJE9MjB](https://pastebin.com/xDJE9MjB).
@@ -24,8 +18,8 @@ Gemini's initial attempt at simplifying, let me know if it's understandable to y
 <br>
 
 ## E pluribus unum. The power of 1. 
-#### _Genesis; Matthew 24:21, Matthew 3:10 Matthew 5:17, Matthew 10:34 for Matthew 7:12; Psalm 88:18, Job 10:20-22 rather than Matthew 5:3-10, Matthew 25:31-46 or Zephaniah 1:14-16. Deuteronomy 27:26, Amen._
 > _tl;dr- the beginning, not the end_
+#### _Genesis; Matthew 24:21, Matthew 3:10 Matthew 5:17, Matthew 10:34 for Matthew 7:12; Psalm 88:18, Job 10:20-22 rather than Matthew 5:3-10, Matthew 25:31-46 or Zephaniah 1:14-16. Deuteronomy 27:26, Amen._
 + Apply the [Continuing-violations doctrine](https://en.wikipedia.org/wiki/Statute_of_limitations#Continuing-violations_doctrine "Continuing-violations doctrine").  Tolling the statute of limitation, each day being a new "[actus reus](https://en.wikipedia.org/wiki/Actus_reus "actus reus")" "[mens rea](https://en.wikipedia.org/wiki/Mens_rea "mens rea")".<br><br>If necessary, section 504 / ADA request for reasonable accommodations; lawfully refuitable only as an "undue hardship" as codified by 42 U.S.C. § 12111(10), pursuant to 42 U.S.C. § 12112(b)(5)(A). Or fundamentally alter the nature of the service, program, or activity; pursuant to 28 C.F.R. § 35.130(b)(7)(i). Success does not release duty to operate inclusively to my needs or obligation to provide reasonable accommodations; it's the public purse, which these people are slaves to, it isn't their personal monies. I have more right to the monies than they do.
 + Initially, a Biblical "flood," leveraging IFP, file new lawsuits in every applicable court, in every single jurisdiction, nationally. Crimes originated in every state, allowing anyone, any grand jury or whatever to investigate / prosecute / or whatever they do. Only one judge in human history is needed to uphold the law...<br><br>
 + Remember remember that one 2024 presidential commericial that the news media **_did not_** want to air? <br><br>In accordance with Article VI, Clause 2 of the US Constitution, pursuant to Article II, Section 1, Clause 5 of the US Constitution; as a presidential candidate from 2016-2084, in the next applicable federal election, run ads that expose the fraud, corruption, and attempted coverup of the 2024 election. Any attempts to change applicable laws or infringe on my rights will be litigated as void ab initio, "ultra vires acts" of an unconstituional judiciary and legislature. Everything applicable today will be applicable then, just worse as a more evident coverup emerges.<br><br>
