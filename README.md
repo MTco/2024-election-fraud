@@ -45,7 +45,7 @@ Inevitably forcing all of these unconstitutional, "ultra vires acts" to be undon
 ### Latest: 
   * 08-16-2025:
     + [Mathematical certainty of Treason; November 5, 2025 😂](https://github.com/MTco/2024-election-fraud/blob/main/Superior-Court/enhanced-memorandum.md)
-    + **Day 198** "Courts" still remain per se open whilst remanining functionally closed to constitutional enforcement
+    + **Day 198** "Courts" still remain per se open whilst remaining functionally closed to constitutional enforcement
     + [Military apprised of Constitutional crisis via social media](https://x.com/realMathewTyler/status/1956792794506543156)
   * 08-13-2025: Military apprised via web portals and additional email addresses, 07/24/2025's "Authorization for Restoration of Constitutional Governance" and Emergency motion
   * 08-11-2025: Military apprised, hand delivered 07/24/2025's "Authorization for Restoration of Constitutional Governance" and Emergency motion
