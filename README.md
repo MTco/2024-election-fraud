@@ -37,6 +37,9 @@ Inevitably forcing all of these unconstitutional, "ultra vires acts" to be undon
 <br>
 
 ### Latest: 
+  * 08-22-2025:
+    + Apprised "Superior 'Court'" of their [criminal conduct](https://github.com/MTco/2024-election-fraud/blob/main/Superior-Court/20250821_Chief-Judge-letter-v1.pdf)
+    + **Day 204** "Courts" still remain per se open whilst remaining functionally closed to constitutional enforcement. "Superior 'Court'" still refuses to adjudicate my emergency ex parte TRO from 07-30-2025, neither denied or approved; they want to deny it but lack the authority 😂. US District "Court" still hasn't ruled on my emergency motion from 07-24-2025.
   * 08-16-2025:
     + [Mathematical certainty of Treason; November 5, 2024 😂](https://github.com/MTco/2024-election-fraud/blob/main/Superior-Court/enhanced-memorandum.md)
     + **Day 198** "Courts" still remain per se open whilst remaining functionally closed to constitutional enforcement. "Superior 'Court'" still refuses to adjudicate my emergency ex parte TRO from 07-30-2025, neither denied or approved; they want to deny it but lack the authority 😂. US District "Court" still hasn't ruled on my emergency motion from 07-24-2025.
