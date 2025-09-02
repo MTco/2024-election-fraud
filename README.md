@@ -37,6 +37,7 @@ Inevitably forcing all of these unconstitutional, "ultra vires acts" to be undon
 <br>
 
 ### Latest: 
+  * 09-02-2025: [US Dist. "Court" Motion for Partial Summary Judgment](https://drive.google.com/file/d/1_K7bQfuQiCw1EN1hpTm_w2eUHYTtJbvj/view?usp=drive_link)
   * 08-22-2025:
     + Apprised "Superior 'Court'" of their [criminal conduct](https://github.com/MTco/2024-election-fraud/blob/main/Superior-Court/20250821_Chief-Judge-letter-v1.pdf)
     + **Day 204** "Courts" still remain per se open whilst remaining functionally closed to constitutional enforcement. "Superior 'Court'" still refuses to adjudicate my emergency ex parte TRO from 07-30-2025, neither denied or approved; they want to deny it but lack the authority 😂. US District "Court" still hasn't ruled on my emergency motion from 07-24-2025.
