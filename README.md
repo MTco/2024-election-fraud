@@ -37,6 +37,7 @@ Inevitably forcing all of these unconstitutional, "ultra vires acts" to be undon
 <br>
 
 ### Latest: 
+  * 09-05-2025: [Motion for reconsideration](https://drive.google.com/file/d/1orQ-4rI7HK0G6Ze8Hul3436WiU2Sr-t4/view?usp=drive_link)
   * 09-02-2025: [US Dist. "Court" Motion for Partial Summary Judgment](https://drive.google.com/file/d/1_K7bQfuQiCw1EN1hpTm_w2eUHYTtJbvj/view?usp=drive_link)
   * 08-22-2025:
     + Apprised "Superior 'Court'" of their [criminal conduct](https://github.com/MTco/2024-election-fraud/blob/main/Superior-Court/20250821_Chief-Judge-letter-v1.pdf)
