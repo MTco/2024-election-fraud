@@ -16,6 +16,7 @@ _Provoking thought, if there was a battle, conflict, war etc ... whose side woul
 <br>
 
 ### Latest: 
+  * 09-15-2025: [Objections to Magistrate Judge's Findings and Recommendations](https://drive.google.com/file/d/1XbigK4FlRq0PkTBwvlGzLKVRJArl2Pa3/view?usp=drive_link "Objections to Magistrate Judge's Findings and Recommendations")
   * 09-05-2025: [Motion for reconsideration](https://drive.google.com/file/d/1orQ-4rI7HK0G6Ze8Hul3436WiU2Sr-t4/view?usp=drive_link)
   * 09-02-2025: [US Dist. "Court" Motion for Partial Summary Judgment](https://drive.google.com/file/d/1_K7bQfuQiCw1EN1hpTm_w2eUHYTtJbvj/view?usp=drive_link)
   * 08-22-2025:
