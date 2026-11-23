@@ -9,6 +9,7 @@ _Provoking thought, if there was a battle, conflict, war etc ... whose side woul
 > <summary></summary>
 > I ask not that you take my word, I ask instead that you check for yourself; it's public information after all. 
 > </details>
+> 
 > ➡️ Right here, in this section, ⬅️ is one location where my deadman's switch / AI / automation will promulgate for dissemination my belief / opinion of how anyone (Canada, France, Spain, NGOs, and even individuals) can successfully abolish the United States government; [1](https://en.wikipedia.org/wiki/Fall_of_the_Western_Roman_Empire) rather than "cats"[2](https://www.worldhistory.org/article/43/the-battle-of-pelusium-a-victory-decided-by-cats/), [3](https://en.wikipedia.org/wiki/Battle_of_Pelusium). _[Damnatio memoriae](https://en.wikipedia.org/wiki/Damnatio_memoriae)_.  Among other websites and likely social media accounts of mine.
 
 History repeats when it is forgotten. As more lawful remedies abdicate and abandon their duties and oaths, it is poised to happen 😔. 
